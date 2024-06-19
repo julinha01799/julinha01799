@@ -8,3 +8,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 ### VOCÊ entrar em contato comigo 📫
 juliadefreitas017@gmail.com
+
+![](https://media1.tenor.com/m/Dzw338Lk54UAAAAC/yes.gif)
